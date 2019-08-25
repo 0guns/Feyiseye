@@ -1,3 +1,3 @@
 # Feyiseye
-This is resume in Html
-A big thank you @flutterwave for suppporting @startdotng @hnginternship
+This is a resume in Html
+https://twitter.com/oguns_001/status/1165718290137845762?s=20
